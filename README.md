@@ -1,4 +1,4 @@
-### Hi 👋, I'm Mohammad Mehdi
+ Hi 👋, I'm Mohammad Mehdi
 
 A passionate IT student and web developer from Karachi, Pakistan. 
 
